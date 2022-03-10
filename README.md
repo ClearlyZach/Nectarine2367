@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nectarine2367!
+- 👋 Hi, I’m @Nectarine2367
 
 
 - nothing else is going on here LOL
